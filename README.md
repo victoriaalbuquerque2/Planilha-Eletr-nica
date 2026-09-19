@@ -1,1 +1,2 @@
-https://github.com/victoriaalbuquerque2/Planilha-Eletr-nica/blob/main/Captura%20de%20tela%202026-09-06%20122805.png
+
+<img width="1688" height="607" alt="image" src="https://github.com/user-attachments/assets/4b05bc9a-bdc6-4b22-b802-f7d36f6a0050" />
